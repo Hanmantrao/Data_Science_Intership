@@ -1,0 +1,2 @@
+Hello everyone, i have just completed Data Science internship, in this intership i aquire solid understanding of the clustering, segmentation, data analysis, exploratory data analysis, and chance to learn new things and hands on experience on all this technology  of data science and machine learning tools and techniques.
+and this intership is very helpful to learn and upskill yourself. those are eager to learn data science all technology so you definetely do this intership.
